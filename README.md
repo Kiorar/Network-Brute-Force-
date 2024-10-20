@@ -1,0 +1,1 @@
+Disclaimer: The information provided is intended for educational purposes only. Unauthorized access to computer systems is illegal. Always obtain permission before conducting any testing. The author is not responsible for any illegal activities conducted using this information.
